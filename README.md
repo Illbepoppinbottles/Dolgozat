@@ -1,1 +1,1 @@
-# Dolgozat
+# Kerékgyártó János
